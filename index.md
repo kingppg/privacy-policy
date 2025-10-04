@@ -17,7 +17,7 @@ This privacy policy describes how we collect, use, and protect your information 
 - We take reasonable measures to protect your information from unauthorized access.
 
 ## Contact Us
-If you have any questions about this privacy policy, please contact us at: [aiveafaith@yahoo.com]
+If you have any questions about this privacy policy, please contact us at: aiveafaith@yahoo.com
 
 ## Changes to This Policy
 We may update this privacy policy from time to time. Any changes will be posted on this page.
